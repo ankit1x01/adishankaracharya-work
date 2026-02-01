@@ -24,3 +24,5 @@
 ---
 
 ## My Notes
+
+https://archive.org/details/vQnU_atmabodh-of-shankaracharya-with-explanation-by-mihir-chandra-1923-khemraj/page/n13/mode/2up
